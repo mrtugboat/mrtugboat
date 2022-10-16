@@ -3,5 +3,7 @@
 - 🌱 I’m currently learning the basics of everything including life
 - 💞️ I’m looking to collaborate on some projects to help enhance my knowledge and skills
 - 📫 How to reach me Discord TugBoat.py#4014
+- 💬 My Discord https://discord.gg/wZU2MA8nSw
+
 
 
